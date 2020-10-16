@@ -1,0 +1,43 @@
+---
+layout: post
+title: Leif - Chapter One
+date: 2020-10-16 16:00
+summary: The start of something. Maybe.
+categories: jekyll mixyll
+---
+
+For twenty-two years, Leif had re-entered the world in the same way every morning. Light from the rising sun would descend the eastern wall of a city skyrise to his thirtieth-floor apartment,  through the window’s plantation shutters, tilted at a few degrees, to his eyelids. It was, he found, the least-objectionable way to wake up, which also served to foster in him an affection for double-glazed windows and a distaste for noisy children and alarm clocks. They were, however, occasionally useful –  alarms – when an overcast day usually meant Leif waking up later than his usual galactically-dictated schedule. To this end he had rolled together a makeshift alarm that tracked the sunrise and his own heartbeat, and if the lack of the former led to no change in the latter, peaceful music would gently crescendo until he woke. 
+
+
+He also preferred, for better or worse, to sleep on a peach-coloured, velvet recliner. He described it, to those who asked, as a sort of fruity rocket ship. It was his launchpad into daily life, and set against the baroque décor he had inherited from his grandparents, it certainly complimented the room’s aesthetic in the way a rocket might, and the rare visitor he allowed into his home never failed to give it a second and third look, as though not fully convinced that it was really there. 
+
+
+The scale of expertise and man-hours involved in the manufacture of his two-thousand-dollar recliner was, of course, less impressive by countless orders of magnitude, but he was nonetheless quietly glad for the fine craftsmanship in his vessel, being, as it was, essential for the achievement of at least two goals he shared with people who rode rockets for a living. Namely, getting up and doing something. He was also prone to occasional poetic exaggeration. He knew he didn’t move in any manner that one might mistake for being quick or purposeful. 
+
+
+He sought above all else a quiet and peaceful sunrise, to float and bathe in a sea of golden light that illuminated every fibrous thread that surrounded him, and that odd chair – along with his white, woollen blanket – was the best way to start the day. Don’t go out and meet the sun, he’d think. Let the sun come to you. Or, on an overcast day like today, allow *Chopin’s Nocturne No.2* to bring you to life. 
+
+
+The whole recliner-sunlight-alarm affair was his practical response to the chronic psychological condition with which he had been for so long afflicted. He was a lazy bastard. He employed this and other elaborate daily rituals when he inadvertently learned from the morning folk that it was possible to outsmart himself into doing things he didn’t want, like waking up and getting out of bed.
+
+
+To put a finer point on it, he wasn’t all that thrilled about what he called ‘morning energy’. Merely announcing the goodness of the AM too near Leif’s ears, or in a manner too birdlike, or too close to first light was considered nothing short of impudent, or at higher volumes, perhaps an act of war. This habit, among a great many others, was, he thought, an ostentatious show of enthusiasm and therefore totally uncalled for. The whole concept of enjoying the wee hours was suspect to the point of conspiratorial; lies and machinations perpetuated by clearly delusional folk to convince everyone else they’re totally in control of their lives but, in truth, was to distract themselves from the wearying realisation that we’re all dying. You don’t see teenagers learning bicep curls or perfecting *virasana*.
+
+
+In any case, Leif understood everyone had their own road to walk, and though the level of his ire towards sunrise exuberance nearly saw it land on his *Most Unwanted* List, he consciously elected not to harbour any longstanding ill-will to those too-jovial conspirators, sparing himself the burden of both high blood pressure and the inevitable interrogations as to why he was such a shit before breakfast. 
+
+
+As he slowly woke, his still-soft focus was caught by a giant green ball that drifted behind and out from the window frame. He blinked long and looked again to see a hot-air balloon aloft outside the city. It was soon accompanied by two others, one in chequered black-and-white, and the other a brilliant blue-and-yellow that recalled the Swedish flag. This was the perfect example – the very embodiment – of morning energy; getting up and flying over the city in a fluorescent dirigible. 
+
+*Own roads, own roads.*
+
+It was nearly enough to put him back to sleep, but the hypnotic drift enchanted him to the point where he wondered if he could book a mid-afternoon flight because it honestly looked a little fun. Their graceful movement through the featureless grey, meanwhile, served to exaggerate all the inevitable sounds of the morning; his hungry belly, the upstairs neighbour dragging a body, the rumble of a train on the overpass. 
+
+
+Far below, he watched Central Station commuters stride swiftly about, their discordant marching forming queues and bottlenecks that swelled with impatience before disappearing. He often observed this daily procession, eyeing their movements, pondering the destinations of those down there  with their own daydreams and odd routines and, perhaps, recliners. 
+
+
+He enjoyed the feeling of stillness in the midst of motion, watching the world whirl about before him like a zoetrope, indulging in momentary delusions that he was in any way separate from it. In a real physical sense, time did move slower up here on the thirtieth floor than it did on the ground. Einstein may have married his cousin, but he was pretty smart, he thought.  Sure, it was trillionths of a second per year slower, but it was enough for Leif. He loved the idea that reality played funny buggers and held among its many parlour tricks a kind of temporal sleight-of-hand that we short-lived meat-creatures couldn’t see with our own eyes, and he took deep comfort in the thought. He had to. He had whiled away so many years in what one could only very charitably call deep reflective thought, his only refuge was the shelter he took in relativity. Boy, he would think, those years went by like *that*.
+
+
+Leif became aware of his slack-jawed staring, and shortened his vision to the fine dust that rested upon the window’s white louvres. He exhaled sharply in mild annoyance before realising he couldn’t remember when he had last cleaned it, and lamented that he couldn’t automate it somehow. He rose from his chair to fetch a cloth from the kitchen sink, but promptly forgot that too, and walked to the bathroom where he showered for exactly five minutes and fifteen seconds before a precisely-controlled meter cut off his hot water, drawing from him the briefest scream.
