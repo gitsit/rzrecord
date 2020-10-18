@@ -20,11 +20,11 @@ The owner and his teenage grandson were exceedingly polite and welcoming to all 
 
 Onwards my companion and I walked, into the cloud-machined Glenrowan street of yesteryear. Shouting voices and thunderous sound effects piped in from hidden speakers,  as we walked through rooms representing famous landmarks from the tale of Ned Kelly. The train station! The pub!  Heads jerked back and forth, limbs flailed, lasers pointed, and dogs peed. The animatronics were indeed, uh, animated and electronic. It was at times quite dark. It was always loud. My natural reaction to the street shootout - located outside in the now blinding sunlight of the property's rear yard - was great concern for what the neighbours might think of all this racket every half hour? 
 
-Anyone not wholly committed to Ned folklore, I soon reasoned, has already moved to Wangaratta.
+I just as quickly rebuffed my own concerns by reasoning that anyone not wholly committed to Ned folklore has probably already moved to Wangaratta.
 
-My companion, who had visited N.K.L.S as a child, gave a vivid recollection of being ushered, along with the other patrons, into a timber shed wherein the animatronic Kelly Gang sat holed-up and cornered by the surrounding police. She recalled with fear this particular display that involved the ramshackle building being set alight. And this would be our next location.
+My companion, who had visited N.K.L.S as a child, gave a vivid recollection of being ushered, along with the other patrons, into a timber shed wherein the animatronic Kelly Gang sat holed-up and cornered by the surrounding police. She recalled her fear of this particular display that involved the ramshackle building being set alight. And informed me this would be our next location.
 
-I will grant that the use of fire - in a wooden shack filled with wax, plastic and live humans - would, to the more cautious observer, appear dangerous. The confidence instilled in me by the owner's bellowing streetside speech, also, as you might expect, had begun to wane. 
+I will grant that the use of fire - in a wooden shack filled with wax, plastic and live humans - would, to the more cautious observer, appear dangerous. The confidence instilled in me by the owner's bellowing streetside speech, also, as you might expect, had already begun to wane. 
 We nonetheless soldiered forth, resolute in our determination to disprove the Google Reviewers wrong. The owner had, afterall, created and maintained this production himself for over two decades, at the cost of millions, he claims. *Millions*. 
 
 It was perhaps somewhat anticlimactic, then, that my visit revealed no fire - not a match, a spark, nothing - but instead a contraption of paper, cellophane, and a hidden wind generator. A brief enquiry after the tour ended, however, elicited a response from the owner that was at least as memorable as everything that had gone before. 
@@ -33,7 +33,7 @@ It was perhaps somewhat anticlimactic, then, that my visit revealed no fire - no
 
 My eyebrows, I assure you, had never been so animated. 
 
-"They all got out," he said, before adding ruefully, "But they made us switch to the fake stuff after that."
+"They all got out," he said, before adding ruefully, "but they made us switch to the fake stuff after that."
 
 Just like a gaggle of tourists miming the aim of a rifle towards Dealey Plaza as the sixth floor of the Texas School Book Depository suddenly collapses beneath them, there's an odd kind of humour to be found, isn't there, in a theatrical display that nearly knocks off forty-five more people than the historical figure to whom it pays tribute?
 
