@@ -6,7 +6,7 @@ summary: How's it going, Mr Kelly?
 categories: jekyll mixyll
 ---
 
-![Image](/NKLS003.jpg)
+![Image](NKLS003.jpg)
 
 *Author's note: This story occurred before viruses kept us in our homes.* 
 
