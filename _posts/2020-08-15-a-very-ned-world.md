@@ -6,6 +6,8 @@ summary: How's it going, Mr Kelly?
 categories: jekyll mixyll
 ---
 
+![Image](../images/NKLS003.jpg?raw=true)
+
 *Author's note: This story occurred before viruses kept us in our homes.* 
 
 At the very real risk of sounding ancient, there is perhaps no more scournful a rage than that which I direct towards crowd-sourced reviews. Yelp, Google Reviews, TripAdvisor. It doesn't matter. Sure, it's stupid, entitled, often unjust, but more importantly, there's a world of entertainment out there passing us by because of the bold-faced charlatanism of your average man and woman on the street. To wit, I may have never witnessed the (2-star?!) animatronic splendor on display at Ned Kelly's Last Stand.
@@ -38,3 +40,6 @@ My eyebrows, I assure you, had never been so animated.
 Just like a gaggle of tourists miming the aim of a rifle towards Dealey Plaza as the sixth floor of the Texas School Book Depository suddenly collapses beneath them, there's an odd kind of humour to be found, isn't there, in a theatrical display that nearly knocks off forty-five more people than the historical figure to whom it pays tribute?
 
 Five stars.
+
+
+
