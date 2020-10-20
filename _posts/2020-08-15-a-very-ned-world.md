@@ -6,7 +6,7 @@ summary: How's it going, Mr Kelly?
 categories: jekyll mixyll
 ---
 
-![Image](NKLS003.jpg)
+![Image](https://cv.vic.gov.au/media/oldmedia/9295/Ned_Kelly.jpg)
 
 *Author's note: This story occurred before viruses kept us in our homes.* 
 
