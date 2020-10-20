@@ -24,7 +24,7 @@ Onwards my companion and I walked, into the cloud-machined Glenrowan street of y
 
 I just as quickly rebuffed my own concerns by reasoning that anyone not wholly committed to Ned folklore has probably already moved to Wangaratta.
 
-![Image](../images/NKLS002.jpg?raw=true)
+![Image](NKLS002.jpg)
 
 My companion, who had visited N.K.L.S as a child, gave a vivid recollection of being ushered, along with the other patrons, into a timber shed wherein the animatronic Kelly Gang sat holed-up and cornered by the surrounding police. She recalled her fear of this particular display that involved the ramshackle building being set alight. And informed me this would be our next location.
 
