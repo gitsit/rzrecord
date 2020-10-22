@@ -2,6 +2,7 @@
 title:       rzrecord
 email:       robzappa@gmail.com
 author:      Rob Zap
+copyright:   "Rob Zap"
 description: "essays, thoughts, etc, by Rob Zap."
 baseurl:     "rzrecord"
 url:         "https://gitsit.github.io"
