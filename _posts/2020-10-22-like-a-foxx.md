@@ -2,7 +2,7 @@
 layout: post
 title: Like a Foxx
 date: 2020-10-22 16:06
-summary: Like a Foxx
+summary: Some more like that, Mr Foxx, if you please.
 categories: jekyll mixyll
 ---
 
