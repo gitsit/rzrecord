@@ -14,7 +14,7 @@ After learning yesterday of Joe Biden's victory over Donald Trump, friends and I
 
 Also noteworthy were those in the crowd, watching on. Supporters in his native Delaware had assembled in their cars due to coronavirus concerns, but had soon unburdened themselves of any fears and stood outside or on the tops of their SUVs, waving flags and placards and honking horns, and for a moment I was struck by how similar to Republican rallies this Democratic one appeared. "Yeah," my friend pointed out, "they're American". I was for a moment aware of my own partiality.
 
-It's no small thing confronting one's own bias. Reading Bob Woodward's authoritative books. _Fear_ and _Rage_ these past few weeks illustrated the importance of it on a few  occasions. While the assertions made in them (and the wider media) about Trump's character and political abilities cannot be reasonably disputed, I can now - with numerous qualifiers - say at least one positive thing about him, and can also level criticism at some of his opponents. 
+It's no small thing confronting one's own bias. Reading Bob Woodward's authoritative books, _Fear_ and _Rage_, these past few weeks illustrated the importance of it on a few  occasions. While the assertions made in them (and the wider media) about Trump's character and political abilities cannot be reasonably disputed, I can now - with numerous qualifiers - say at least one positive thing about him, and can also level criticism at some of his opponents. 
 
 At this point I feel compelled to reiterate, strongly, I do not like Donald Trump. His misdeeds are innumerable, he has damaged the highest office in his country, and might have forever redirected modern politics down a far more treacherous path.
 
