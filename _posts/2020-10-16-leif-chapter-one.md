@@ -3,7 +3,7 @@ layout: post
 title: Leif - Chapter One
 date: 2020-10-16 16:00
 summary: The start of something. Maybe.
-categories: jekyll mixyll
+categories: fiction
 ---
 
 For twenty-two years, Leif had re-entered the world in the same way every morning. Light from the rising sun would descend the eastern wall of a city skyrise to his thirtieth-floor apartment,  through the window’s plantation shutters, tilted at a few degrees, to his eyelids. It was, he found, the least-objectionable way to wake up, which also served to foster in him an affection for double-glazed windows and a distaste for noisy children and alarm clocks. They were, however, occasionally useful –  alarms – when an overcast day usually meant Leif waking up later than his usual galactically-dictated schedule. To this end he had rolled together a makeshift alarm that tracked the sunrise and his own heartbeat, and if the lack of the former led to no change in the latter, peaceful music would gently crescendo until he woke. 

@@ -3,7 +3,7 @@ layout: post
 title: The Dorktown Mariners
 date: 2020-09-26 19:22
 summary: Love, loss, baseball.
-categories: jekyll mixyll
+categories: media sports
 ---
 The Dorktown series detailing the history of Major League Baseball's Seattle Mariners, written by Jon Bois and Alex Rubenstein, might not be the most talked-about sports journalism of the COVID-19 era, but maybe it should be. While ESPN/Netflix's The Last Dance, by Jason Hehrin, thrills us with previously unseen footage of the 90s-era champion Chicago Bulls, and highlights the backstories of the players that ultimately led Chicago to winning six titles, the success of that documentary feels like a lay-up. Jordan, Pippen, Jackson, Rodman, winning it all six times. *Of course* we're interested. 
 

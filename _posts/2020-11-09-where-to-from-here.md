@@ -1,9 +1,9 @@
 ---
 layout: post
 title: Where To From Here?
-date: 2020-10-22 16:06
+date: 2020-11-09 17:34
 summary: Recovery in a post-Trump world.
-categories: jekyll mixyll
+categories: politics media 
 ---
 
 > "If you would win a man to your cause, first convince him that you are his true friend. Therein is a drop of honey that catches his heart, which, say what he will, is the greatest highroad to his reason, and which when once gained, you will find but little trouble in convincing his judgment of the justice of your cause, if, indeed, that cause be really a just one. On the contrary, assume to dictate to his judgment, or to command his action, or to make him as one to be shunned or despised, and he will retreat within himself, close all the avenues to his head and heart; and though your cause be naked truth itself, transformed to the heaviest lance, harder than steel and sharper than steel can be made, and though you throw it with more than Herculean force and precision, you shall be no more able to pierce him than to penetrate the hard shell of a tortoise with a rye straw."

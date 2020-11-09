@@ -3,7 +3,7 @@ layout: post
 title: A Very Ned World
 date: 2020-08-15 15:00
 summary: How's it going, Mr Kelly?
-categories: jekyll mixyll
+categories: media 
 ---
 
 ![](NKLS003.jpg)
