@@ -1,14 +1,13 @@
 ---
 layout: post
 title: A Very Ned World
-date: 2020-08-15 15:00
+date: 2020-10-15 15:00
 summary: How's it going, Mr Kelly?
 categories: media 
 ---
 
 ![](NKLS003.jpg)
 
-*Author's note: This story occurred before viruses kept us in our homes.* 
 
 At the very real risk of sounding out-of-touch, there is perhaps no more scournful an eyeroll than that which I reserve for crowd-sourced reviews. Yelp, Google Reviews, TripAdvisor. Even disregarding for a moment the injustice and outsized self-entitlement inherent in their use, there is a whole world of entertainment out there passing us by because of the bold-faced charlatanism of your average man and woman on the street. To wit, I may have never witnessed the (2-star?!) animatronic splendor on display at Ned Kelly's Last Stand.
 
