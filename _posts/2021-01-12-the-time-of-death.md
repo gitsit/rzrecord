@@ -24,11 +24,11 @@ Now having witnessed this past December the assisted-death of my father, I can s
 
 **** 
 
-A unique feeling fills the room where you know that death will soon quietly arrive; not abrupt and shocking, or violent to the senses, but with warmth and a smile and loving words. There is still so much sadness - someone whom you loved, or you were raised by, or shared history with, is leaving you, and you must make sense of it - but the knowledge that they will not so much be *taken* by death but, by choice, *depart* with it, is calming. This feeling lingers in the heart.
-
 I received the morning phone call from my sister who told me, "He's decided to go today," before adding the redundant "...you better come over." Frustrated though I was that he didn't wait another few days for one final Christmas lunch, I understood. 
 
 One by one the family gathered over the course of the morning and early afternoon. People phoned in from overseas. Grandchildren left new drawings on the fridge. We each took a moment of privacy with him over the next few hours, and he would occasionally rise from his bed, upon his crutches, to join us in the living room for more casual conversation, or to watch one of us shuffle his playing cards, anything to stop fidgeting, anything to soften the final moments when he would return one last time to his bedroom.
+
+A unique feeling fills the room where you know that death will soon quietly arrive; not abrupt and shocking, or violent to the senses, but with warmth and a smile and loving words. There is still so much sadness - someone whom you loved, or you were raised by, or shared history with, is leaving you, and you must make sense of it - but the knowledge that they will not so much be *taken* by death but, by choice, *depart* with it, is calming. This feeling lingers in the heart.
 
 When he was ready to go, we joined him, seated around his bed on the foldout chairs I had placed - fully conscious of all the times I had walked into rooms like this - as his partner and eldest son prepared the Drink, double- and triple-checking that the otherwise simple directions were followed to the letter. In these remarkable minutes, there was even room enough for levity, as one or two of us gently joked with Dad. The sun bathed the room in a pleasant warmth. Birds sang outside.
     
