@@ -6,7 +6,7 @@ summary: Some personal observations on death and assisted dying
 categories: thoughts life dying
 ---
 
-Certain careers allow for the close-up appreciation of how people live. The commonalities we share, the pattern that exist across cultural and economic backgrounds are thrown into sharp relief when, for example, like me, you are invited to photograph people's homes.
+Certain careers allow for the close-up appreciation of how people live. The commonalities we share, the patterns that exist across cultural and economic backgrounds are thrown into sharp relief when, for example, like me, you are invited to photograph people's homes.
   
 My job as a real estate photographer, such as it was, afforded me countless opportunities, during which I witnessed all manner of wealth and poverty, every size and style of bathroom and kitchen. But of all the houses I entered, none left an imprint on me quite as vivid as those used to say goodbye to a loved one.
 
